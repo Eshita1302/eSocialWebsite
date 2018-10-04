@@ -1,0 +1,1 @@
+<div class=foot>Copyright &copy; 2012. All Rights Reserved. <a href="http://www.eshitathedesire.blogspot.com">eSocial..by Eshita Gupta</a></div>
